@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Ciências da Computação (Bacharelado) and Front-End (Curso 3 meses)
 - 💞️ I’m looking to collaborate on none
 - 📫 How to reach me Instagram: @anne_moreira.a
-- 😄 Pronouns: Happy, Crazy, Speaker, Multithoughts ...
+- 😄 Pronouns: Happy, Crazy, Falante, Multithoughts ...
 - ⚡ Fun fact: None
 
 <!---
